@@ -1,4 +1,4 @@
-NUKED BY THE USUR
+SHUTiNG D0WN!
 
 <!---
 TheNZWankPoliceNov20202/TheNZWankPoliceNov20202 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
